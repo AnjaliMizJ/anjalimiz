@@ -4,3 +4,16 @@ I am a tech girl with the passion to learn more and get experience in the domain
 
 
 My aim is to contribute to the inter-disciplinary areas using my skills.
+
+
+
+- 🔭 I’m currently working on - Upgrading myself
+
+- ⚡ Fun fact - Sketching, Nature photography, Reading books
+
+
+
+You can also find find me at:
+
+[twitter]: https://twitter.com/anjalimiz
+[linkedin]: https://www.linkedin.com/in/anjali-mishra-7029368a/
